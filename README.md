@@ -1,0 +1,1 @@
+# GH-high-schools-hub
